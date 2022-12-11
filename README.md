@@ -1,1 +1,1 @@
-# https://rtvrtv32.github.io/rsschool-cv/cv
+# https://rtvrtv32.github.io/rsschool-cv/
